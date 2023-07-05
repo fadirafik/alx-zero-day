@@ -1,1 +1,1 @@
-ya rab nengex
+ya rab nengezz
